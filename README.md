@@ -10,3 +10,4 @@ heyo
 meme coin
 saturday
 yooo
+edith
