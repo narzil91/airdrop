@@ -11,3 +11,4 @@ meme coin
 saturday
 yooo
 edith
+READ ME !
